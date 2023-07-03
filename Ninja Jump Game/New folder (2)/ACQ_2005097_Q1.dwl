@@ -1,0 +1,3 @@
+DELL
+DESKTOP-Q1TO9TA 
+Monday, April 11, 2022  3:30:07 PM
